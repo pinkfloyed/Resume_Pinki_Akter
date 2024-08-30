@@ -1,1 +1,1 @@
-[Pinki_Akter_Resume.pdf](https://github.com/user-attachments/files/16750665/Pinki_Akter_Resume.pdf)
+[Resume_Pinki Akter.pdf](https://github.com/user-attachments/files/16819340/Resume_Pinki.Akter.pdf)
